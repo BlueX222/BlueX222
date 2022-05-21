@@ -1,11 +1,5 @@
-- 👋 Hi, I’m @BlueX222
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-BlueX222/BlueX222 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
-Don't worry I am just a learner
+- 👋 Hi, I’m Fardin
+- welcome assalamulaikom brother and sister 😊💞 
+- thanks for your coming Ami too vabi nai Tomi asba 🥰
+- basar sovai Valo to uncle aunty k amr salam Dio🥰
+- biday bondhu Valo thako nijer kheal rekho
